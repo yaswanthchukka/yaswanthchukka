@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yaswanthchukka
 - 👀 I’m interested in Learning new Techies
-- 🌱 I’m currently learning M.Tech(AI&ML) in VIT
+- 🌱 I’m currently doing M.Tech(AI&ML) in VIT
 - 📫 How to reach me +91 8374670453
 - 😄 Pronouns: yaswanth
 
